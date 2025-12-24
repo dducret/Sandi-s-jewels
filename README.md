@@ -1,1 +1,1 @@
-Snadi's jewels
+Sandi's jewels
